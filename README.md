@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @janneice babys!
+- 👀 I’m interested in learning everything I can!
+- 🌱 I’m currently learning about blockchains
